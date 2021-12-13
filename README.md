@@ -1,2 +1,2 @@
 # SC-BOT-WA
-Jan Dibully Gua 
+Jan Dibully Gua Bro
